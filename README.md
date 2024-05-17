@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @joshfaatonu
+- 👋 Hi, I’m Josh
 - 👀 I’m interested in Sports
 - 🌱 I’m currently studying at Harbin Engineering University undergoing Bachelor Degree majoring Civil Engineering
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on Engineering matters  
 - 📫 How to reach me through my contacts as shown
 
 
